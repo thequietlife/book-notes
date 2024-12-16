@@ -1,6 +1,6 @@
-#### 📚 Notes of interesting bits of books. Sometimes I will re-read a book to find the bit that stood out to me. So I am hoping these notes are something I can reach for rather than finding the book and rereading it. 
+📚 Notes of interesting bits of books. Sometimes I will re-read a book to find the bit that stood out to me. So I am hoping these notes are something I can reach for rather than finding the book and rereading it. 
 
-#### 🧹 Another aim is to make me go through the books I have and see which ones I want to keep.
+🧹 Another aim is to make me go through the books I have and see which ones I want to keep.
 
 ### Contents
 

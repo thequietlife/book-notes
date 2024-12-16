@@ -1,4 +1,4 @@
-#### 📚 Notes from books I am reading 
+#### 📚 Notes of interesting bits of books. Sometimes I will re-read a book to find the bit that stood out to me. So I am hoping these notes be a handy resource 🧹 Another aim of this repo is to make me go through the books I have and see if I want to keep them.
 
 ### Contents
 
